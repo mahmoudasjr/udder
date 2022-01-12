@@ -1,3 +1,3 @@
 # udder
 
-Order fresh mil on demande.
+Order fresh milk on demande.
